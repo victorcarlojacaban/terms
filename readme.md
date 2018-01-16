@@ -1,1 +1,1 @@
-TERMS
+FORUM
